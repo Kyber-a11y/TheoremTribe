@@ -1,1 +1,0 @@
-Theorem Tribe
